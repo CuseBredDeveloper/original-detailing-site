@@ -1,1 +1,1 @@
-# original-detailing-site
+# originl-detailing-site
